@@ -1,4 +1,3 @@
-![download](https://github.com/akankushjnvku/akankushjnvku/assets/133310922/f54c8f50-ced6-4637-8afa-3a052ca6f07b)
 
 ![](https://raw.githubusercontent.com/halfrost/halfrost/master/icons/header_.png)
 
